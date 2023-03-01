@@ -1,8 +1,20 @@
 # Ram
 
 
-bad smell
-durian
-snakes
-heights
-dark
+
+
+
+
+
+
+
+sports
+games
+computer
+foods
+movies
+planes
+travel
+cellphones
+tshirts
+pools
