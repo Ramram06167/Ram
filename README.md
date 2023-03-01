@@ -1,6 +1,8 @@
 # Ram
 
 
-Ramirez
-Exclamador
-Gucela
+bad smell
+durian
+snakes
+heights
+dark
